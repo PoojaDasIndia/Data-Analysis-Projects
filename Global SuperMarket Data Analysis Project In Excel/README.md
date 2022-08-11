@@ -8,3 +8,7 @@ This dashboard Purely created in excel , with  the help excel formula merage dif
 <oi>count </oi>
 
 
+https://youtu.be/DiZ-rVqL8qI
+
+
+
